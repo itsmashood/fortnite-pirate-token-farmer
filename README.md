@@ -1,2 +1,2 @@
 # fortnite-pirate-token-farmer
-i wanna be pegged
+something like idk just it was made with ai just use it i cba gatekeping i want token so bad bro
